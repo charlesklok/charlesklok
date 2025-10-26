@@ -12,7 +12,8 @@
                                        ੭ ⠀ taken⠀ 𓈒⠀intwc
                                       
                                     
-![tumblr_97aa64e1cfb2ae9d5c33c5d934d3f807_4355b3bc_540](https://github.com/user-attachments/assets/bb5c2cec-c8f6-4f55-8682-89711f1bc5ed)
+![tumblr_ef3b4e3eadbdf9e1fd1c87e67ccd6d16_0ef428a2_400](https://github.com/user-attachments/assets/9d5c16a6-79ac-49e7-9190-a51a9873a289)
+
 
                                   
 P-DID SYS (10+ ALTERS!)
