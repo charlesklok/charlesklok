@@ -1,4 +1,8 @@
 
+
+<img width="1000" height="250" alt="tumblr_583a03526e65689f7cde7a1e3c6ed622_80cbf456_640" src="https://github.com/user-attachments/assets/af96111d-f46d-46f7-ab74-68a6fe994d2c" />
+
+
 ◞◟) ⠀ cade⠀ 𓈒⠀15⠀+     +  french canadian 
 
 
