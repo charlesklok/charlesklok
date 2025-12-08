@@ -6,7 +6,7 @@
 ◞◟) ⠀ cade⠀ 𓈒⠀15⠀+     +  french canadian 
 
 
-⠀                       ℘      she /⠀ they⠀/  him
+⠀                       ℘      he /⠀ hym⠀/  neos
 
 
                                        ੭ ⠀ taken⠀ 𓈒⠀intwc
