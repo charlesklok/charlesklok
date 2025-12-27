@@ -7,7 +7,7 @@
 
 
 
-⠀                       ℘      he /⠀ hym⠀/  neos
+⠀                           ℘      he /⠀ hym⠀/  neos
 
 
                                        ੭ ⠀ taken⠀ 𓈒⠀intwc
